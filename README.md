@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @unknown279
+- 👀 I’m interested in ... FNF, Scratch and YT
+- 🌱 I’m currently learning ... how to code in javascript
+- 💞️ I’m looking to collaborate on ... bookmarklet reenables
+- 📫 How to reach me ... you cant. sorry.
+- Current Links: Yt (OUTDATED) https://www.youtube.com/@FatalityOfficialhashtag0860?app=desktop
+- Scratch: scratch.mit.edu/users/BlackImposterv4
